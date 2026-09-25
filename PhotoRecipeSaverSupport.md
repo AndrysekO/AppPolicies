@@ -4,7 +4,7 @@ Photo Recipe Saver keeps all your recipe photos and screenshots in one place, or
 
 ## Contact
 
-Have a question, found a bug, or have an idea for a feature? Email me at andrysek.o@gmail.com and I'll get back to you as soon as I can.
+Have a question, found a bug, or have an idea for a feature? Email me at curiousbobcatstudio@gmail.com and I'll get back to you as soon as I can.
 
 ## Common questions
 
