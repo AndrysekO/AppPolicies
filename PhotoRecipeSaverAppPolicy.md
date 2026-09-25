@@ -44,4 +44,4 @@ If this policy changes, I will update this page and the effective date above.
 
 ## Contact
 
-If you have questions about this policy, contact me at andrysek.o@gmail.com.
+If you have questions about this policy, contact me at curiousbobcatstudio@gmail.com.
